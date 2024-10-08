@@ -1,5 +1,5 @@
 # 💫 About Me:
- 👋 Hi,I'm Muhammad Huzaifa!<br>👀 I’m interested in Coding...<br>- 🌱 I’m currently learning JavaScript<br>- 👨‍💻 All of my projects are available at https://github.com/mhuzaifa360?tab=overview&from=2024-07-01&to=2024-07-31<br>- 💞️ I’m looking to collaborate on Web Development-related projects...<br>- 📫 How to reach me => Email: mhuzaifa3128352877@gmail.com<br>- 😄 Pronouns: He ...<br>- ⚡ Fun fact I'm very Passionate About learning new Technologies
+ 👋 Hi,I'm Muhammad Huzaifa!<br>👀 I’m interested in Coding...<br>- 🌱 I’m currently learning JavaScript<br>- 👨‍💻 My YOUTUBE Channel link: https://www.youtube.com/@TechByHuzaifa360 <br>- 💞️ I’m looking to collaborate on Web Development-related projects...<br>- 📫 How to reach me => Email: mhuzaifa3128352877@gmail.com<br>- 😄 Pronouns: He ...<br>- ⚡ Fun fact I'm very Passionate About learning new Technologies
 
 
 ## 🌐 Socials:
